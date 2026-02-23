@@ -31,5 +31,13 @@ He took a gulp and wiped the imaginary sweat bead from his forehead, then tilted
 ***
 
 ***" . . . When did you get here ? "*** The mannequin spoke gently, his tone concerned and subtly interested.
+![](https://file.garden/aSPtuZ-Qjze7pe-Y/Illustration2.png)
+
+***" Oh ? "*** Karl blinked, then lowered his head to his crow— which raised its wings and *whispered* something to him. ***" Really Arma ? He's like that ? "*** The blonde added a small gasp, then looked at Climber.
+
+***" Well anyway . . . "*** The crow fluttered its wings and moved away from Karl, then he directed his full attention to him.
+
+# PAUSE THERE READER !
+aaaa as of feb 24 I wrote all dat... I'll comtinue this anotber day ! Tysm for takinf the time to read yayyyy hopefully my grammar isn't horrendous 
 
 
