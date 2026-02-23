@@ -21,4 +21,15 @@ His gloved hand wrapped tightly around his beloved pickaxe, he looked around and
 
 ***
 
-He took a gulp and wiped the imaginary sweat bead from his forehead, then tilted his head to the side; 
+He took a gulp and wiped the imaginary sweat bead from his forehead, then tilted his head to the side —
+![](https://file.garden/aSPtuZ-Qjze7pe-Y/ce9ee3714c5e48919d2e2cfb832456a4.gif)
+
+***" The sky is gorgeous tonight! Ain't it, Arma ? "*** The blonde man exclaimed joyfully to his crow that was on top of his hand.
+
+*" How did ? — When did HE get here ? "* Climber thought. For a second he couldn't recognize the taller statue in front of him; then the voice rang a bell . . . ***It's Karl.*** Not that he has anything against him, but his **fake** gentle demeanour that hides such intelligence and nasty clever tricks is a skill from Karl that he can't seem to learn. It's amazing how a smile really does change his whole appearance.
+
+***
+
+***" . . . When did you get here ? "*** The mannequin spoke gently, his tone concerned and subtly interested.
+
+
